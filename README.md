@@ -1,1 +1,1 @@
-# acikkaynakkodluyazilimlqr
+# acikkaynakkodluyazilimlar
